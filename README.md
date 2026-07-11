@@ -1,0 +1,1 @@
+# Parallels-Desktop-Standard-Edition-21.1
